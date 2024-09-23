@@ -1,4 +1,4 @@
-## **Ola! Bem-vindos ao meu perfil!** 👋
+## Ola! Bem-vindos ao meu perfil! 👋
 
 Meu nome é **Isabella Gomes**
 
